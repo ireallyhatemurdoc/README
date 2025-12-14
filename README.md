@@ -3,4 +3,6 @@
 hii!
 im sabine/mudz
 I go by ANY pronouns i dont mind at all!
-idk what else to add so ill wait for tomorrow to edit it,,,, (´_ゝ`)
+,,,, (´_ゝ`)
+I REALLY LIKE GORILLAZ ITS SO COOL!!!!!
+also im not lesbian,,, i just like girls,,, ok..?
